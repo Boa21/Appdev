@@ -1,6 +1,6 @@
 # My Favorite Series
 
-## The Walking Dead S1
+## The Walking Dead S2
 
 **The Walking Dead** is my all-time favorite series. It's a post-apocalyptic horror drama that kept me hooked for years.
 
